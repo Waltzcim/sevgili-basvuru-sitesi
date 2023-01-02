@@ -1,0 +1,1 @@
+Yani 5 dakika bile sürmedi yapması doldurması gereken yerler var index.html dosyasında troline kullanın örnek site https://waltzcim.xyz
